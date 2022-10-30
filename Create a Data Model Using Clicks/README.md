@@ -29,3 +29,17 @@ Create a Data Model Using Clicks
 
 ![image](https://user-images.githubusercontent.com/97858274/198891911-a1a9bbb3-53fc-4836-bc75-def29cbb0c53.png)
 
+![image](https://user-images.githubusercontent.com/97858274/198892729-bfd89849-0b3e-4793-8908-2ee7ecfd217b.png)
+
+![image](https://user-images.githubusercontent.com/97858274/198892748-45571001-6655-49f0-97ab-a8999b943bbb.png)
+
+![image](https://user-images.githubusercontent.com/97858274/198892808-dee8f139-9200-4cb2-a6d3-5d50d2137fa4.png)
+
+![image](https://user-images.githubusercontent.com/97858274/198892825-1da875ee-9fba-4b64-ae56-db052c9642e6.png)
+
+![image](https://user-images.githubusercontent.com/97858274/198892846-e1e3aea8-651e-47a0-ba9f-4c3daa512e08.png)
+
+![image](https://user-images.githubusercontent.com/97858274/198892942-31f1f93c-6afe-4edb-9bc7-c8c5f81de126.png)
+
+![image](https://user-images.githubusercontent.com/97858274/198892980-3a0843ce-972b-40a6-a01c-76ab115b43ee.png)
+
