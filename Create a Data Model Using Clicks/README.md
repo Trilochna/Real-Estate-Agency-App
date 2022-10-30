@@ -43,3 +43,8 @@ Create a Data Model Using Clicks
 
 ![image](https://user-images.githubusercontent.com/97858274/198892980-3a0843ce-972b-40a6-a01c-76ab115b43ee.png)
 
+![image](https://user-images.githubusercontent.com/97858274/198893024-95dc53e7-4b26-45cc-ac3d-09f3d44da102.png)
+
+
+![image](https://user-images.githubusercontent.com/97858274/198893068-8e7b63a4-74d5-41df-912c-67b8a3ca9c6d.png)
+
